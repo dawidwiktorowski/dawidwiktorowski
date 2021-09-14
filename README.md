@@ -12,4 +12,4 @@
 
 ## 🌎 Find Me Around The Web
 - 📧 <dawid.wiktorowski22@gmail.com>
-- 🔗 [Linkedin](https://www.linkedin.com/in/dawid-wiktorowski-336496194/)
+- 🔗 [Linkedin](https://www.linkedin.com/in/dawidwiktorowski/)
